@@ -15,6 +15,8 @@ hi! you might know me as din / **mirage** / sova ^^
 > be respectful of my boundaries. this means:
 > 
 > **no kissing**, ask for C+H. DNC pref. pokes and whispers are OK
+>
+> **do NOT ship me with my friends** if we have ponies of the same fandom.
 -----
 
 ### the characters listed below are my **kins**. 
